@@ -1,4 +1,4 @@
-# Atividades dia 06/03
+# Atividade dia 06/03
 > Gustavo Martins dos Reis
 
 1. D
